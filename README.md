@@ -1,5 +1,5 @@
 # 💫 About Me:
- I’m currently turning coffee into code & bugs into features<br><br>Looking to collaborate on hackathons, random ideas & “bro trust me” projects<br><br>Currently learning AI, networking & cyber security<br><br>Ask me about coding, tech chaos & unfinished side projects<br><br>
+ I’m currently turning coffee into code & bugs into features😁🥲<br>Looking to collaborate on hackathons, random ideas & “bro trust me” projects😏<br>Currently learning AI, networking & cyber security<br>Ask me about coding, tech chaos & unfinished side projects<br>(* ￣︿￣)
 
 
 # 💻 Tech Stack:
